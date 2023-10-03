@@ -1,4 +1,4 @@
-# Justin & Alisher team
+
 ***
 ## Alisher Yantizhanov
 UI/UX, graphic and web designer
